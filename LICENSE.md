@@ -1,4 +1,4 @@
-
+rare Ulysses for macOS Plugin | multi-device sync + dark mode offers the most advanced Ulysses for macOS plugin, with multi-device sync and dark mode. Ideal for professionals.
 
 
 
